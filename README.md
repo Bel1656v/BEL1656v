@@ -12,4 +12,4 @@ FFM.GATA@GMAIL.COM
 
 @BEL1656v
 
-|[]()https://tenor.com/pt-BR/view/awkward-in-trouble-oh-no-shocked-whoops-gif-14620936
+|[]((https://tenor.com/pt-BR/view/awkward-in-trouble-oh-no-shocked-whoops-gif-14620936)
